@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning everything (Python) 🤣
 - 👯 I’m looking for interesting people
 - 🥅 2020 Goals: Start using GitHub and waiting for 2021
-- ⚡ Fun fact: I love the international life
+- ⚡ Fun fact: I love the international life & coffee
 
 ### Connect with me:
 
